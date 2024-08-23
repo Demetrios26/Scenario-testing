@@ -1,0 +1,1 @@
+Решение [***здесь***]([https://drive.google.com/file/d/1vJm9UEphm5U-KmyS5NJa1NTi5Yk_ntg7/view?usp=drive_link](https://docs.google.com/spreadsheets/d/1QwwGUQx6QvwU-__bWYIQr691KmhxECtU11bDL8o4-YE/edit?gid=0#gid=0))
